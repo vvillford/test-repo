@@ -1,3 +1,3 @@
-# Yeet
+# Yeet!
 
 lorem ipsum
